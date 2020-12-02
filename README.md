@@ -1,4 +1,4 @@
 lage-frontenpark-soundscape
 ===========================
 
-24/7 onbeschemd gehoor
+24/7 onbeschermd gehoor
